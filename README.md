@@ -1,6 +1,7 @@
 ### Привет, меня зовут Анна 👋
 
-Telagram: @Tour_Anna
+
+Telegram: @Tour_Anna
 
 Email: touranna@gmail.com
 
