@@ -5,5 +5,5 @@
 
 Telegram: @Tour_Anna
 
-Email: touranna@gmail.com
+
 
